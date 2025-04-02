@@ -6,6 +6,7 @@ E-mail: malakfelipe@gmail.com\
 LinkedIn: linkedin.com/in/felipemalak\
 GitHub: github.com/malakfelipe
 
+
 **COORDENADOR DE BUSINESS INTELLIGENCE / ESPECIALISTA DE BUSINESS INTELLIGENCE**
 
 Sou um profissional com mais de 10 anos de experiência na área de inteligência de negócios e dados em empresas de varejo, seguros e telecomunicações.
